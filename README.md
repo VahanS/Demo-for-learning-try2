@@ -1,3 +1,3 @@
 # TRY 2
 
-LET'S FUCKIN' GO!!!
+LET'S FRICKIN' GO!!!
